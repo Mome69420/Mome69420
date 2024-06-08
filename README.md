@@ -6,7 +6,7 @@
 
 🔭The projects main focus is the community. Getting back to the grass roots of what memes and memecoins were, & are, all about. Built by the community, for the community
 
-🦶Stepping away from the effortless use of A.I. Art. Featuring community creations, original art/gifs & helping bringing back creativity to the space 
+🦶Stepping away from the effortless use of A.I. Art. Featuring community creations, original art/gifs & helping to bring back creativity to the space 
 
 👷‍♀️Working towards cNFTs & GameFi with "$Mome's Crypto Pop". A P2E game. A re-envisioning of the classic bubble pop/ brick breaker. Where you will accumulate memecoins, complete goals & even gamble, if you dare, to earn points. Which then can be converted into your favorite CNA's. cNFT integration/staking will allow for multipliers on the in-game points system
 
